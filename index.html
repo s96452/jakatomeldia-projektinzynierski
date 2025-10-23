@@ -1,0 +1,1 @@
+# jakatomeldia-projektinzynierski
